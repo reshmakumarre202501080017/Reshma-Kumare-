@@ -1,2 +1,2 @@
 # Reshma-Kumare-
-Github link 
+Information Technology
